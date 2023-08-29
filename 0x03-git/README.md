@@ -1,1 +1,1 @@
-I will learn
+I will learn and learn hard 
